@@ -1,3 +1,3 @@
-# redred
+# 팔랑귀 팔랑귀 (That's red, red)
 
-<img width="498" height="498" alt="martin-cortis" src="https://github.com/user-attachments/assets/e33e87db-5085-41cf-8b9c-b75c33c8f2a2" />
+![image](https://i.pinimg.com/474x/82/bd/8d/82bd8dd0e008ee259443fb5311f7525e.jpg)
