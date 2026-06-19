@@ -8,6 +8,8 @@
 </br>⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img width="350" height="200" alt="6gmevmhuvrywqonf3rsjppgm" src="https://github.com/user-attachments/assets/7ca843a5-1d00-43f1-8bf0-db05e77e7430" />
 
 
+</br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀`this is best viewed on pc/laptop`
+
 
 
 
